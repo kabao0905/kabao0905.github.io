@@ -1,2 +1,3 @@
-# kabao0905.github.io
-Introduce my information
+Now I am 18 years old, I live in HCM city
+I have a lot of idea of project about AI
+I want to active AI to everything in in our live
